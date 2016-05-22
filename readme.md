@@ -1,2 +1,2 @@
 ![1]
-(http://imgur.com/qnzH5tt)
+(http://i.imgur.com/qnzH5tt.jpg)
